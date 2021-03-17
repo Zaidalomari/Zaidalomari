@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zaidalomari
-- 👀 I’m interested in mechatroncis engineering
+- 👀 I’m interested in mechatronics engineering
 - 🌱 I’m currently looking for jobs to gain experince 
 - 📫 zaidbf4@gmail.com
 
